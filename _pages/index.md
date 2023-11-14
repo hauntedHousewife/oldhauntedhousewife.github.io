@@ -15,7 +15,8 @@ LEFT YOU FOR GITHUB BECAUSE I'M READY TO COMMIT.
 
 (This knowledge) 
 
-I'm here for the green boxes. Same as you. 
+Here for the green boxes. Same as you. 
+I just don't work that hard for mine.
 
 <strong>Recently updated notes</strong>
 
