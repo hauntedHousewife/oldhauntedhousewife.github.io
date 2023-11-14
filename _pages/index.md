@@ -15,9 +15,7 @@ LEFT YOU FOR GITHUB BECAUSE I'M READY TO COMMIT.
 
 (This knowledge) 
 
-I'm here for those little green boxes. Leave me alone. 
-
-Everyone wants to see my GitHub but nobody wants to hear about how (redacted) my husband thinks I am after getting really into (redacted) last summer. 
+I'm here for the green boxes. Same as you. 
 
 <strong>Recently updated notes</strong>
 
