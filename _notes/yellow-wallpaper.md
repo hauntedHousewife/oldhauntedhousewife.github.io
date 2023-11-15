@@ -1,5 +1,4 @@
-Hi, me
-- It's you. 
+Hi, me, it's you. 
 
 I haven't seen me for a long, long time. 
 
